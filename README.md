@@ -7,4 +7,6 @@ To be honest, there is a status of a message being read everywhere and that's en
 
 Join us. Save the chat culture.
 
-[Gleb Proydov t.me/proydov](url)
+Gleb Proydov
+[t.me/proydov](url)
+
